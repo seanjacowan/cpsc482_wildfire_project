@@ -1,1 +1,0 @@
-# cpsc482_wildfire_project
